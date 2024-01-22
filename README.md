@@ -21,5 +21,4 @@ Professional Academic Writer with creativity and technical know-how necessary fo
 
 ## Projects Portfolio
 To know more of my Skills and Experiences regarding my Academic and research skills, Kindly Check out my Portfolio.
-![My_Portfolio](assets/img/Bike_sales_Discovery.jpg)
-
+![My_Portfolio](https://docs.google.com/document/d/10XViQFrDnZiv6bPSj6sFJkNs5WZSgl_QPBDIBdXcCfw/edit?usp=sharing)
