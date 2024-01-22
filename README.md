@@ -4,6 +4,7 @@
 
 ## Education
 B.Arts, English Language | Obafemi Awolowo University - Ile-Ife, OSUN STATE (_2015-03 - 2020-12_)
+
 Senior Secondary Leaving Certificate | Betgad Model College - Ilesa, OSUN STATE (_2005-09 - 2013-09_)
 
 Professional Academic Writer with creativity and technical know-how necessary for a freelancer ;consistent in meeting deadlines and reliable in producing error-free copy. Skilled in using variable wording, voice and complexity based on the brief of the work. A dependable individual proficient in the English Language with extensive experience in education seeking opportunity to expand skills and contribute to institution success with the aim to deliver consistently on every assignment. 
