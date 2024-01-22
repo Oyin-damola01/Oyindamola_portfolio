@@ -10,7 +10,7 @@ Senior Secondary Leaving Certificate | Betgad Model College - Ilesa, OSUN STATE 
 Professional Academic Writer with creativity and technical know-how necessary for a freelancer ;consistent in meeting deadlines and reliable in producing error-free copy. Skilled in using variable wording, voice and complexity based on the brief of the work. A dependable individual proficient in the English Language with extensive experience in education seeking opportunity to expand skills and contribute to institution success with the aim to deliver consistently on every assignment. 
 
 ## Work History/ Experience
-** Freelance Writer (Academic Writing) (_2018-06 - Current_)**
+**Freelance Writer (Academic Writing) (_2018-06 - Current_)**
 - Utilized exceptional writing, editing and proofreading skills to produce engaging and error-free content in academic and research.
 - Researched and wrote original and unplagiarized content for case studies and assignments.
 - Proofread copy written by colleagues to correct spelling, punctuation and grammar.
