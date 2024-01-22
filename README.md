@@ -1,7 +1,6 @@
 # Freelance Writer | Academic and research | Data Entry 
 
-#### Technical skills: Academic and research skills, Interpersonal Communication and active listening
-, Clerical Support, English fluency and Analytical skills, Articulate English Dictions and Problem-Solving skills , Teamwork and Collaboration, Teaching and education, Data Entry
+#### Technical skills: Academic and research skills, Interpersonal Communication and active listening, Clerical Support, English fluency and Analytical skills, Articulate English Dictions and Problem-Solving skills, Teamwork and Collaboration, Teaching and education, Data Entry
 
 ## Education
 B.Arts, English Language | Obafemi Awolowo University - Ile-Ife, OSUN STATE (_2015-03 - 2020-12_)
